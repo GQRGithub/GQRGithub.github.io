@@ -1,1 +1,0 @@
-# GQRGithub.github.io
